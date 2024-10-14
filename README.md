@@ -9,6 +9,7 @@
 - 📫 How to reach me **roselalotra@gmail.com**
 
 - 🎯 Life Hack: **Explore 🔥 and Explode 💣 with knowledge**
+- All about me - [My Website](https://iamrose47.netlify.app/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
